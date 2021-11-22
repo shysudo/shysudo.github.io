@@ -1,3 +1,3 @@
-# shysudo.github.io
+# shysudo
 
 Way to rock . . . .!! 
